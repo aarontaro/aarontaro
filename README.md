@@ -1,0 +1,3 @@
+- 👋hi , I’m @wo-omie
+- i like jjba
+- i probably will only use this github for vrchat and minecraft frfr
