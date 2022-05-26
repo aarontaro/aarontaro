@@ -1,3 +1,3 @@
 - 👋hi , I’m @wo-omie
 - read my carrd https://kujojos.carrd.co/
-- tbh vegas sucked whyd i live there for so long ☠️
+- nyanya meow moew
