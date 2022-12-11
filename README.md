@@ -1,3 +1,4 @@
 - 👋hi , I’m @wo-omie
 - read my carrd https://kujojos.carrd.co/
-- nyanya meow moew
+- yakuza, jjba, Identity V & MLP enjoyer.
+- vrchat avatar creator (you don't know who i am)
