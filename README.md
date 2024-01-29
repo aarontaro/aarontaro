@@ -17,6 +17,6 @@ dni if:
 - if you are a fan of/part of the fanbase for dream smp, alfred's playhouse, the coffin of andy and leyley, or yarichin bitch club
 
 pt info:
-- i'm c+h friendly!!
+- interact w/ me in any way! idc if you boop me, sit next to me, etc, just dont be weird abt it
 - i tab out frequently, so if i don't respond, whisper me and i'll respond asap!
 - i'll interact with basically anyone (as long as they're not on my DNI) unless my status is set to busy 🐱
